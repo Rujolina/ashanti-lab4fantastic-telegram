@@ -5,3 +5,5 @@ I don't believe that chicken nuggets and boneless chicken wings are not the same
 
 This is a cool thought. 
 I love both tho LOL
+
+I never thought about it like that.
